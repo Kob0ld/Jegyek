@@ -1,0 +1,2 @@
+# Jegyek
+Órai munka/feladat
